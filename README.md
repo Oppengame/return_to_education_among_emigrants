@@ -16,7 +16,7 @@ The paper intended to find out if there are differences in return to education a
 
 
 
-ספטמבר 201
+ספטמבר 2019
 
 
 
